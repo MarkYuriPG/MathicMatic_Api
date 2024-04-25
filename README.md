@@ -1,12 +1,12 @@
 # The Smurfs
 
-1. **[Mark Yuri P Geagonia]**
+1. **Mark Yuri P Geagonia**
 
-2. **[Edward John Camarillo]**
+2. **Edward John Camarillo**
 
-3. **[Jose Felipe Terdes]**
+3. **Jose Felipe Terdes**
    
-4. **[Karl John Villardar]**
+4. **Karl John Villardar**
 
 ## About
 
